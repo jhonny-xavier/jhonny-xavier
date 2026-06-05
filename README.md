@@ -15,5 +15,5 @@ I am passionate about turning complex, raw data into actionable business insight
 - Enhancing my technical English for the global tech market.
 
 #### 📫 How to reach me
-- [LinkedIn](https://www.linkedin.com/in/jhonny-xavier-8b8b7640/?skipRedirect=true)
+- [LinkedIn]https://www.linkedin.com/in/jhonny-xavier-8b8b7640/?skipRedirect=true
 -->
